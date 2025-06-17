@@ -2,6 +2,7 @@
 THE WORST BALATRO MOD EVER!!!!!!!!!
 
 yeah the code for this mod is awful
+
 ALSO YOU NEED TALISMAN INSTALLED!!!!!!!!!!!!!!
 https://github.com/SpectralPack/Talisman
 
